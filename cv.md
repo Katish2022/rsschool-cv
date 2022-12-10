@@ -30,4 +30,4 @@ Education
 Languages
 -------------------------------
 * Russian - native speaker.
-* English - A2-B1(don`t have speaking practice, but i`m good in reading and writing)
+* English - A2-B1(dont have speaking practice, but i`m good in reading and writing)
