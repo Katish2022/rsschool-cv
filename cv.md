@@ -1,4 +1,4 @@
-Katsiaryna Kulbatskaya
+*Katsiaryna Kulbatskaya*
 --------------------------------
 
 My contact info
